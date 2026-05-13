@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans Scripts secure is the best jujutsu shenanigans Script, featuring no cooldown and unlimited stamina. Safe and powerful for all
 
 
 
